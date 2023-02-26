@@ -1,1 +1,1 @@
-# Epidemiologick-modely-s-p-adick-mi-sly
+# Epidemiologicke modely s p-adickymi cisly
